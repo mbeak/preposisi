@@ -1,0 +1,2 @@
+# preposisi
+Sekali berarti
